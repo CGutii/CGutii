@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m Guti 👀<br> I’m interested in AI, Apps, & Embedded Systems <br>📫 How to reach me: <br>-Cristiang52001@hotmail.com <br>-cristiangutierrez@knights.ucf.edu<br><br>
+👋 Hi, I’m Guti 👀<br> I’m interested in AI, Apps, & Embedded Systems <br>📫 How to reach me: <br>-Cristiang52001@hotmail.com <br>-Cristiangutierrez@knights.ucf.edu<br><br>
 
 
 ## 🌐 Socials:
